@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AK-J-DUB
+- 👀 I’m interested in ...Nothing 
+- 🌱 I’m currently learning ...Nothing
+- 💞️ I’m looking to collaborate on ...Nothing
+- 📫 How to reach me ...You Dont XD
+- 😄 Pronouns: ...She/Her
+- ⚡ Fun fact: ... Nothing
